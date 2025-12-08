@@ -1,0 +1,31 @@
+# Lemaitre – Closer
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+I feel the shadows hanging over
+They're waiting to come closer
+To come and take me away
+And I can feel my heart skip
+Everytime that I sleep
+I wanna run away
+I, I've been working the morning
+Don't get off til the night
+I can't find the time to clear
+my mind
+Oh, I dream of the lazy days
+One of the careless ways for me
+to be living
+I feel the shadows hanging over
+They're waiting to come closer
+To come and take me away
+And I can feel my heart skip
+Everytime that I sleep
+I wanna run away
+I feel the shadows hanging over
+They're waiting to come closer
+To come and take me away
+And I can feel my heart skip
+Everytime that I sleep
+I wanna run away
+```
